@@ -140,4 +140,4 @@ No fim de setembro veio a correção de fundo: saiu o orquestrador intermediári
 
 ---
 
-Fernando Mendonça · [LinkedIn](https://www.linkedin.com/in/fernando-mendon%C3%A7a-637b19242/) · [GitHub](https://github.com/fernandomcrsilva) · [perryinveste.com](https://perryinveste.com)
+Fernando Mendonça · [LinkedIn](https://www.linkedin.com/in/fernando-mendonca26/) · [GitHub](https://github.com/fernandomcrsilva) · [perryinveste.com](https://perryinveste.com)
